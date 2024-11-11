@@ -2,7 +2,7 @@
 
 ## 🚀 Introdução
 
-> Woooow! Look at this 👀
+>Uau! Veja isso 👀
 
 Olá pessoal, Emerson aqui! Inspirado na hype _"Natty or Not", este Lab te convida a conhecer o mundo das IAs Generativas, explorando o potencial dessas tendências tecnológicas incríveis!
 
